@@ -10,4 +10,4 @@ Former editor reaching over 100,000 likes on multiple videos on TikTok. Also use
 
 I am currently most focused on game/software development though I'm working on all of them.
 
-Basically, I am interested in almost every thing there is to creating digital content.
+Basically, I am interested in almost everything there is to creating digital content.
