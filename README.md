@@ -8,6 +8,10 @@ It is currently in its concept phase and is being planned to be a 3D third-perso
 
 Former editor reaching over 100,000 likes on multiple videos on TikTok. Also used to do GFX in photoshop. 
 
+Doing wiki work for game fandoms sometimes. <3
+
 I am currently most focused on game/software development though I'm working on all of them.
 
 Basically, I am interested in almost everything there is to creating digital content.
+
+Also if you have experience in web design or back-end developement, please contact me on discord @newportsecrets, thanks.
