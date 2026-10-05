@@ -12,6 +12,7 @@ Doing wiki work for game fandoms sometimes. <3
 
 I am currently most focused on game/software development though I'm working on all of them.
 
-Basically, I am interested in almost everything there is to creating digital content.
+If you wonder if I use AI for any of these, I only ever use AI to minimize time waste on simple tasks or missing documentation regarding game or software development. I do not use AI to generate pictures, videos or make fully based AI projects.
 
+Basically, I am interested in almost everything there is to creating digital content.
 Also if you have experience in web design or back-end developement, please contact me on discord @newportsecrets, thanks.
